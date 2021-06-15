@@ -6,7 +6,7 @@ I am a Web Developer with a keen eye for creating visually appealing and user fr
 ## Resume
 💼 💼 💼 💼 💼 💼
 
-[Dorman-Resume](https://drive.google.com/file/d/1PZxu8k_Nh1jhEhAzVZWVqRR68SDESvR-/view "Dorman-Resume Home")
+[Dorman-Resume](https://drive.google.com/file/d/1FfGzEsgyg22ta5rNKsbMzdvJLy02dbjG/view?usp=sharing "Dorman-Resume Home")
 
 ## LinkedIn
 🔗 🔗 🔗 🔗 🔗 🔗
