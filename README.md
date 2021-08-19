@@ -16,7 +16,7 @@ I am a Web Developer with a keen eye for creating visually appealing and user fr
 ## Resume
 💼 💼 💼 💼 💼 💼
 
-[Dorman Resume2.0 PDF](https://github.com/ChainRxn12/portfolio2.0/files/6697407/Dorman.Resume2.0.pdf)
+[Dorman Resume2.1.pdf](https://github.com/ChainRxn12/portfolio2.0/files/7016094/Dorman.Resume2.1.pdf)
 
 ## LinkedIn
 🔗 🔗 🔗 🔗 🔗 🔗
