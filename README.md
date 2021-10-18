@@ -11,7 +11,7 @@ I am a Web Developer with a keen eye for creating visually appealing and user fr
 ## Email Billy
 📬 📬 📬 📬 📬 📬
 
-[Email.ME](mailto:b.d.dorman12@gmail.com)
+[B.d.dorman12@gmail.com](mailto:b.d.dorman12@gmail.com)
 
 ## Resume
 💼 💼 💼 💼 💼 💼
